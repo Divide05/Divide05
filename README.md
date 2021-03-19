@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Divide05
+- 👀 I’m interested in: Too many things to list
+- 🌱 I’m currently learning: How to exist
+- 💞️ I’m looking to collaborate on: Nothing, As of rn I jsut wanna get started
+- 📫 How to reach me: Don't, please
